@@ -1,2 +1,0 @@
-
-"https://erucesniyob.github.io" 
